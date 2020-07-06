@@ -1,1 +1,1 @@
-# final-project-course1-webdesign-mich
+# final-projects web design for everyone Michigan uni
